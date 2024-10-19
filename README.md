@@ -1,0 +1,2 @@
+# NEEEWNursultanAlphaCrack
+password is : Nursultan
